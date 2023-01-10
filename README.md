@@ -1,1 +1,1 @@
-# The-Cases-of-Sir-Bernard-Spilsbury
+# The Cases of Sir Bernard Spilsbury
